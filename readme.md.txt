@@ -8,3 +8,5 @@
 6. Perbanyak berkelahi
 
 7. Minum minuman kerass
+
+8. Minum minuman ringan
