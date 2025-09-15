@@ -4,4 +4,4 @@
 
 4. Perbanyak Pacaran
 
-4. Perbanyak Ibadah
+5. Perbanyak Ibadah
