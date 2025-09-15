@@ -5,3 +5,5 @@
 4. Perbanyak Pacaran
 
 5. Perbanyak Ibadah
+
+6. hehe
