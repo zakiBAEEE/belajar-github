@@ -6,3 +6,5 @@
 
 5. Perbanyak Sedekah
 6. Perbanyak berkelahi
+
+7. Minum minuman kerass
