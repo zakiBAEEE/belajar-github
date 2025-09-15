@@ -3,3 +3,6 @@
 3. Perbanyak Baca Buku
 
 4. Perbanyak Ibadah
+
+5. Perbanyak Sedekah
+6. Perbanyak berkelahi
